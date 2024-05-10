@@ -1,6 +1,6 @@
 ### Hey!
 
-🔭 I'm looking for a PhD position in AIoT or related fields.
+🔭 I'm looking for a PhD position in AIoT or related fields.       
 💬 About me:
 - A die-hard Harry Potter fan. My favorite characters are Ron Weasley and Regulus Black. Those who show bravery always deeply touch me. By the way, we might argue if you're a Draco fan. :-)
 - 一个很严格的“的/地/得”和“不以为意/不以为然”小警察. 
