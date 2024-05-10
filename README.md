@@ -6,4 +6,5 @@
 - I firmly believe that courage, curiosity, perseverance, and working with exceptional people are the most important things.
 
 🔭 I'm looking for a PhD position in AIoT or related fields.   
-📫Feel free to contact me. I've placed a link on the left where I've written some blogs. 
+📫 Feel free to contact me at tanyuxiin[at]163[dot]com.
+📖 I've placed a link on the left where I've written some blogs. 
