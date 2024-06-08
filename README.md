@@ -5,6 +5,6 @@
 - 一个很严格的“的/地/得”和“不以为意/不以为然”小警察. 
 - I firmly believe that courage, curiosity, perseverance, and working with exceptional people are the most important things.
 
-🔭 I'm looking for a PhD position in AIoT or related fields.   
-📫 Feel free to contact me at tanyuxiin[at]gmail[dot]com.    
+🔭 I'm looking for a PhD position in AIoT and related fields.   
+📫 Contact me at tanyuxiin[at]gmail[dot]com.    
 📖 I've placed a link on the left where I've written some blogs. 
