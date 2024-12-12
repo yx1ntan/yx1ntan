@@ -6,5 +6,5 @@
 - I firmly believe that passion, critical thinking, dedication and perseverance are the most important factors.
 
 🔭 ~~I'm looking for a PhD position in AIoT and related fields.~~ I'm an incoming Ph.D. student in HKUST CSE for Fall 2025.     
-📫 Contact me at tanyuxiin[at]gmail[dot]com.    
+📫 Feel free to contact me at tanyuxiin[at]gmail[dot]com.    
 📖 I've placed a link on the left where I've written some blogs. 
